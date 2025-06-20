@@ -1,2 +1,6 @@
-# Ghassan-quotes-
-Original quote written by Ghassan Al Abed — June 2025
+I don't suffer from megalomania...🖤  
+I'm just where humanity should have been, but it was too late.
+
+— Ghassan Al Abed  
+June 2025  
+© Ghassan Al Abed
